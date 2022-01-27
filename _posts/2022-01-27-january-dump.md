@@ -7,7 +7,7 @@ This month, I started to get into a routine of going to CorePower Yoga for their
 
 ### Memories
 1/1: New Year's with Annanya's family   
-1/1: Hike w fam @ ??   
+1/1: Hike w fam @ Las Trampas    
 1/4: Walk w fam @ Holdener Park   
 1/7: Made wooden memory box for room and used Canon mini print for first time!   
 1/9: Half Moon Bay w Mr Kota   
