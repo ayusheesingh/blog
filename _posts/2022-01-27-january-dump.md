@@ -1,7 +1,7 @@
 ## January Dump
 I wanted to start a blog for the longest time but now that I have, I am kind of stressed/confused on what I want to put on here?? so it will be random. I'll try to update this whenever I do something cool or want to share something exciting I've read or explored. Since it's still the first month of the year, I'll try to remember some things that have happened until now xD
 
-This month, I started to get into a routine of going to Corepower Yoga for their 7:30am class and got their All-Access membership for a month but put a pause to it when I got COVID :( My friend also goes to the gym regularly and lives very close to me, so I might just try to go with her for a bit until my Corepower starts up again in a month (so annoying that the shortest amount of time I can freeze my membership for is a month). I've tried getting more settled into my life in San Francisco and even furnished my place a lot more by getting a rug, TV stand, nesting tables, and balcony furniture and tiles. It seems like a lot of people are starting to move here, so I'm excited to reconnect with old friends and meet up with new ones :) 
+This month, I started to get into a routine of going to CorePower Yoga for their 7:30am class and got their All-Access membership for a month but put a pause to it when I got COVID :( My friend also goes to the gym regularly and lives very close to me, so I might just try to go with her for a bit until my CorePower starts up again in a month (so annoying that the shortest amount of time I can freeze my membership for is a month). I've tried getting more settled into my life in San Francisco and even furnished my place a lot more by getting a rug, TV stand, nesting tables, and balcony furniture and tiles. It seems like a lot of people are starting to move here, so I'm excited to reconnect with old friends and meet up with new ones :) 
 
 ---
 
@@ -14,7 +14,7 @@ This month, I started to get into a routine of going to Corepower Yoga for their
 1/13: Cocktail class w MQ   
 1/13: Bamboo Sushi w Suze   
 1/14: Bao w Mr Kota   
-1/15: Corepower Yoga routine begins   
+1/15: CorePower Yoga routine begins   
 1/15: Formula 1 obsession begins   
 1/15: Dinner w Aileen  
 1/16: Point Reyes w VV   
