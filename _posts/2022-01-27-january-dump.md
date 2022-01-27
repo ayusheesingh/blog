@@ -9,17 +9,17 @@ This month, I started to get into a routine of going to CorePower Yoga for their
 1/1: New Year's with Annanya's family   
 1/1: Hike w fam @ ??   
 1/4: Walk w fam @ Holdener Park   
-1/7: Made wooden memory box for room decor and used Canon mini print for first time!   
+1/7: Made wooden memory box for room and used Canon mini print for first time!   
 1/9: Half Moon Bay w Mr Kota   
 1/13: Cocktail class w MQ   
 1/13: Bamboo Sushi w Suze   
 1/14: Bao w Mr Kota   
-1/15: CorePower Yoga routine begins   
+1/15: CorePower Yoga journey begins   
 1/15: Formula 1 obsession begins   
 1/15: Dinner w Aileen  
 1/16: Point Reyes w VV   
 1/19: Dinner w Anshula   
-1/20: Visit Simona's new apt   
+1/20: Visited Simona's new apt   
 1/22: Tried to get tested but couldn't    
 1/23: Assembled IKEA balcony tiles   
 1/24: Covid Commencement  
