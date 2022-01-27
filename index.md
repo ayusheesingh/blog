@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+welcome to my blog! it will mostly consist of my thoughts about things I like to do (reading, hiking, traveling) and places I enjoy (san francisco, my bed). 
